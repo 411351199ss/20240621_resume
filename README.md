@@ -8,6 +8,7 @@
 
 ### 個人著作
 - 日語檢定Ｎ4通過證書
-- ![](https://i.imgur.com/HuOIEPx.jpg)
+  ![](https://i.imgur.com/HuOIEPx.jpg)
 
+<hr>
 
