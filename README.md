@@ -5,3 +5,9 @@
 - 學歷：[輔仁大學經濟系](https://www.economics.fju.edu.tw/)
 - 興趣：**看動畫**、電影、日劇、讀小說、聽音樂、聽演唱會
 <hr>
+
+### 個人著作
+- 日語檢定Ｎ4通過證書
+- ![](https://i.imgur.com/HuOIEPx.jpg)
+
+
